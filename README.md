@@ -1,0 +1,1 @@
+# isekai-text-rpgv1.0
